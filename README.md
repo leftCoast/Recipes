@@ -24,3 +24,4 @@ Stand mixer? KitchenAid Artisan. Bought by a friend about 30 some years ago as a
 
 Pork chop? 3/4" thick bone in.
 
+Spice, spice for frying chicken, or prawns. 
