@@ -1,4 +1,5 @@
 # Recipes
+
 The recipes I like to use. Now I won't loose them with my phone.
 
 **A bit of a glossery:**
@@ -13,17 +14,13 @@ When I say beans. I mean Pink beans. Like Pinto beans, but better.
 
 Brining beans. Yes I brine them. 2 Qt water, 2 tbl salt, 2 cups dry PINK beans, overnight. (Get the quality brand, it does make a difference.)
 
-Chicken? Chicken would be boneless skinless thigh meat. Sometimes bone in. Tatsteless & tough breast meat? Only if specified.
+Chicken? Chicken would be boneless skinless thigh meat. Sometimes bone in. Tasteless & tough breast meat? Only if specified.
 
 Mayo? This would be my own made with olive oil. If specified, possibly Best Foods Mayo.
 
-Dutch oven. Mine is cast iron, 6 qt. It's acutually from Martha Stuart. Gift from the wife, many years ago.
+Dutch oven. Mine is cast iron, 6 qt. It's actually from Martha Stuart. Gift from the wife, many years ago.
 
-Stand mixer? Kitchen aid Artison. Bought by a friend about 30 some years ago as a rebuilt machine. Still running.
+Stand mixer? KitchenAid Artisan. Bought by a friend about 30 some years ago as a rebuilt machine. Still running.
 
 Pork chop? 3/4" thick bone in.
-
-
-
-
 
