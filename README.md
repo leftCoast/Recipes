@@ -28,4 +28,4 @@ Spice, spice for frying chicken, or prawns. (marionkay.com Chicken seasoning 99-
 
 Chicken Italian sausage. Isernoio's Hot Italian chicken sausage. Comes in 1 lb packs. All the flavor without the pork fat.
 
-A bowl of crushed garlic. Ihave a hand garlic crusher. It has a bowl to hold the garlic. Maybe about 2 cloves?
+A bowl of crushed garlic. I have a hand garlic crusher. It has a bowl to hold the garlic. Maybe about 2 cloves?
