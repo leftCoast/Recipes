@@ -27,3 +27,5 @@ Pork chop? 3/4" thick bone in.
 Spice, spice for frying chicken, or prawns. (marionkay.com Chicken seasoning 99-X) <- This is the bomb!
 
 Chicken Italian sausage. Isernoio's Hot Italian chicken sausage. Comes in 1 lb packs. All the flavor without the pork fat.
+
+A bowl of crushed garlic. Ihave a hand garlic crusher. It has a bowl to hold the garlic. Maybe about 2 cloves?
