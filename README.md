@@ -25,3 +25,5 @@ Stand mixer? KitchenAid Artisan. Bought by a friend about 30 some years ago as a
 Pork chop? 3/4" thick bone in.
 
 Spice, spice for frying chicken, or prawns. (marionkay.com Chicken seasoning 99-X) <- This is the bomb!
+
+Chicken Italian sausage. Isernoio's Hot Italian chicken sausage. Comes in 1 lb packs. All the flavor without the pork fat.
