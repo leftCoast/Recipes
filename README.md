@@ -24,4 +24,4 @@ Stand mixer? KitchenAid Artisan. Bought by a friend about 30 some years ago as a
 
 Pork chop? 3/4" thick bone in.
 
-Spice, spice for frying chicken, or prawns. 
+Spice, spice for frying chicken, or prawns. (marionkay.com Chicken seasoning 99-X) <- This is the bomb!
