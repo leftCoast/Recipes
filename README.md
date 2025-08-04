@@ -16,7 +16,7 @@ Brining beans. Yes I brine them. 2 Qt water, 2 tbl salt, 2 cups dry PINK beans, 
 
 Chicken? Chicken would be boneless skinless thigh meat. Sometimes bone in. Tasteless & tough breast meat? Only if specified.
 
-Mayo? This would be my own, made with olive oil. If specified, possibly Best Foods Mayo.
+Mayo? This would be my own, made with olive oil. Distant second choice? Probably Best Foods Mayo.
 
 Dutch oven. Mine is cast iron, 6 qt. It's actually from Martha Stuart. Gift from the wife, many years ago.
 
